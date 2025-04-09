@@ -1,6 +1,8 @@
 ## PopAi Promo Code: Your Guide to Affordable AI Innovation** 
-[![Discount button](https://github.com/user-attachments/assets/542d2fcb-9f09-41bc-a745-eaa613cfcc97)](https://popai.saaslink.net/dh5P9N)
-Show quoted text
+<a href="https://popai.saaslink.net/dh5P9N">
+  <img src="https://github.com/user-attachments/assets/b9eb4d08-74cb-4b32-8a87-91394ac31fe6" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
+</a>
+
 
 
 In today’s fast-paced digital world, AI tools are revolutionizing productivity for businesses, creatives, and students alike. PopAi, a cutting-edge AI platform, offers powerful solutions to streamline tasks—and with an exclusive **PopAi promo code**, you can access these tools at unbeatable prices. This guide dives into how PopAi transforms workflows, where to find discount codes, and tips to maximize your savings.  
